@@ -1,2 +1,2 @@
 # Priyanka
-Hello there , This is my profil
+Hello there , This is my profile
